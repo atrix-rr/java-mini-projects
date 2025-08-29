@@ -1,2 +1,2 @@
 HI FOLKS!!
-These are some of my easy jav projects.
+These are some of my easy java projects.
